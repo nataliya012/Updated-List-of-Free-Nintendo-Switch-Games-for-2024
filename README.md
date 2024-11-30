@@ -1,0 +1,1 @@
+# Updated-List-of-Free-Nintendo-Switch-Games-for-2024
